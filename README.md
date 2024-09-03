@@ -1,6 +1,6 @@
 # Hi, I'm Andreea! 👋
 
-With over 14 years of experience in recruitment, I specialize in helping professionals stand out in today’s competitive job market. From crafting and reviewing over 5,000 resumes to analyzing more than 15,000, I've had the privilege of working with a diverse range of organizations—from industry leaders to dynamic startups.
+With over 14 years of experience in recruitment, I specialize in helping professionals stand out in today’s competitive job market. From crafting and reviewing over 5,000 resumes to analyzing more than 15,000, I've had the privilege of working with a diverse range of organizations - from industry leaders to dynamic startups.
 
 ## Why Choose Me?
 
