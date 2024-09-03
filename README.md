@@ -25,7 +25,40 @@ With over 14 years of experience in recruitment, I specialize in helping profess
 
 ## Areas of Expertise
 
-Finance & Accounting | Human Resources | Retail & E-Commerce | Hospitality & Tourism | Manufacturing | Telecommunications | Real Estate | Legal Services | Nonprofit & Social Services | Media & Entertainment | Energy & Utilities | Construction & Architecture | Agriculture & Farming | Creative Arts & Design | Biotechnology | Environmental Services | Customer Service | Event Planning | Fashion & Beauty | Government & Public Administration | Science
+- **Finance & Accounting**
+- **Human Resources**
+- **Retail & E-Commerce**
+- **Hospitality & Tourism**
+- **Manufacturing**
+- **Telecommunications**
+- **Real Estate**
+- **Legal Services**
+- **Nonprofit & Social Services**
+- **Media & Entertainment**
+- **Energy & Utilities**
+- **Construction & Architecture**
+- **Agriculture & Farming**
+- **Creative Arts & Design**
+- **Biotechnology**
+- **Environmental Services**
+- **Customer Service**
+- **Event Planning**
+- **Fashion & Beauty**
+- **Government & Public Administration**
+- **Science**
+- **Healthcare & Medical**
+- **Education & Training**
+- **Engineering**
+- **Information Technology**
+- **Transportation & Logistics**
+- **Retail & Wholesale**
+- **Aerospace**
+- **Pharmaceuticals**
+- **Cybersecurity**
+- **Supply Chain Management**
+- **Real Estate Development**
+- **Startups & Entrepreneurship**
+- **Consulting**
 
 ## Services Offered
 
@@ -41,6 +74,14 @@ Finance & Accounting | Human Resources | Retail & E-Commerce | Hospitality & Tou
 - Government Resume
 - Medical Resume
 - ATS-Friendly Resume
+- Academic CV
+- International Resume
+- Freelance Resume
+- Contract Resume
+- Internship Resume
+- Career Change Resume
+- Portfolio Resume
+- Digital Resume
 
 ## Ready to Transform Your Career?
 
