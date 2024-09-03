@@ -4,7 +4,7 @@ With over 14 years of experience in recruitment, I specialize in helping profess
 
 ## Why Choose Me?
 
-🔥 **Personalized Attention**: Every project is handled personally by me. No outsourcing—just dedicated, hands-on expertise.
+🔥 **Personalized Attention**: Every project is handled personally by me. No outsourcing - just dedicated, hands-on expertise.
 
 🎯 **Tailored Solutions**: I create customized resumes that highlight your unique skills, experiences, and career goals.
 
